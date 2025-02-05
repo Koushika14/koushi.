@@ -1,2 +1,3 @@
-# koushi.
+# koushi.🙂
 koushi repository
+Data Analyst📈
